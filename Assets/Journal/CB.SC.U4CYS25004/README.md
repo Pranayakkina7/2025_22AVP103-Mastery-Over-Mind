@@ -28,7 +28,7 @@ His constant encouragement and positive attitude helped me regain confidence and
 
 I'll always remember his inspiring words that keep motivating me to move forward in life. People like him are rare only.
 
-2 -- Spandana Akka (OUr Cybersecurity Senior)
+2 -- Spandana Akka (OUr  Senior)
 
 Spandana akka is honestly amazing.
 
@@ -63,3 +63,4 @@ When I'm thinking about Charan, Spandana akka, and Srinivasan sir, I just feel r
 They all showed me what kindness and patience actually looks like. Not just talking about it but actually doing it. They shaped not just my studies but also who I'm becoming as person.
 
 These three people made Amrita feel like home. I'll always treasure what they given me and try to be like them for others also.
+
